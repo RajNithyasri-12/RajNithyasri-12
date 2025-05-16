@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RajNithyasri-12
 - 👀 I’m interested in ... Music
 - 🌱 I’m currently learning ... CSE 
-- 💞️ I’m looking to collaborate on ... job 
+- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... @ Panimalar
 - 😄 Pronouns: ... Her/She
 - ⚡ Fun fact: ... The funny 
